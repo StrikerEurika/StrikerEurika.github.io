@@ -1,0 +1,1 @@
+# StrikerEurika.github.io
